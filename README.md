@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IdaKEADigital
-- 👀 I’m interested in ...
+- 👀 I’m an Associate Professor at Copenhagen School of Design and Technology
 - 🌱 I’m currently learning how to navigate the huge dilemma of working with sustainability, ethics and tech.
 - 💞️ I’m looking to collaborate on interesting projects
 - 📫 How to reach me: Connect and message me at: https://www.linkedin.com/in/idawinberghemmingsen/
